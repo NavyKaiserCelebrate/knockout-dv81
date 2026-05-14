@@ -1,4 +1,4 @@
-
+Get ahead in brookhaven rp with instant Script for brookhaven rp, featuring one-hit kill and auto-heal. Download now to dominate every match with ease and confidence, thanks to
 
 
 
